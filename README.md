@@ -10,12 +10,31 @@ Find us on ( kylekariuki93@gmail.com)
 
 
 FUN FACTS ABOUT ME
+
+
+
+
 Am afraid being carried on a bicycle 🚲
+
+
+
+
 I love tea 🍵 
+
+
+
+
 I've never been in turukana
 
 HOBBIES
-Swimminh 🏊‍♀️ 🥽 🏊‍♀️ 
+
+
+
+Swimming 🏊‍♀️ 🥽 🏊‍♀️ 
+
+
 Gaming 🖥
+
+
 Dancing 🕺 👯‍♂️ 🕺 
 
