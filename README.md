@@ -7,4 +7,3 @@ I'm intrestes in learning diffrent programming languages wich i will later use t
 I'm currently learning html, javascript, CSS and how to use tools such as linux and vs code.
 I'm currently creating a proffesional profile that i will use for my projects later.
 Find us on ( kylekariuki93@gmail.com)
-
