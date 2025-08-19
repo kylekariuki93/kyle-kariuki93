@@ -26,9 +26,10 @@
 * *Developing high class codes that will be used in big companies here in kenya and outside kenya.*
 
 ###### HOW TO REACH ME
-![](https://img.icons8.com/?size=50&id=1HPEMGhkgT4o&format=gif)
 
-kylekariuki93@gmail.com ![](https://img.icons8.com/?size=50&id=UGjeZAvO94lh&format=gif) 0702395085 
+![](https://img.icons8.com/?size=50&id=1HPEMGhkgT4o&format=gif)kylekariuki93@gmail.com 
+
+![](https://img.icons8.com/?size=50&id=UGjeZAvO94lh&format=gif) 0702395085 
 
 ![](https://img.icons8.com/?size=48&id=kM0cd7be1NC1&format=gif) @kyle_babu 
 
