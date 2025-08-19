@@ -26,8 +26,17 @@
 * *Developing high class codes that will be used in big companies here in kenya and outside kenya.*
 
 ###### HOW TO REACH ME
-![](https://img.icons8.com/?size=50&id=1HPEMGhkgT4o&format=gif) kylekariuki93@gmail.com ![](https://img.icons8.com/?size=50&id=UGjeZAvO94lh&format=gif) 0702395085 
-![](https://img.icons8.com/?size=48&id=kM0cd7be1NC1&format=gif) @kyle_babu ![](https://img.icons8.com/?size=64&id=X8g2OZMx4ET5&format=gif) Kyle kariuki ![](https://img.icons8.com/?size=48&id=ZRiAFreol5mE&format=gif) @kyle_yourmomsfav32 ![](https://img.icons8.com/?size=50&id=Cj0GRwV9Xr9Q&format=gif) @kyle
+![](https://img.icons8.com/?size=50&id=1HPEMGhkgT4o&format=gif)
+
+kylekariuki93@gmail.com ![](https://img.icons8.com/?size=50&id=UGjeZAvO94lh&format=gif) 0702395085 
+
+![](https://img.icons8.com/?size=48&id=kM0cd7be1NC1&format=gif) @kyle_babu 
+
+![](https://img.icons8.com/?size=64&id=X8g2OZMx4ET5&format=gif)Kyle kariuki
+
+![](https://img.icons8.com/?size=48&id=ZRiAFreol5mE&format=gif) @kyle_yourmomsfav32 
+
+![](https://img.icons8.com/?size=50&id=Cj0GRwV9Xr9Q&format=gif) @kyle
 
 
 
