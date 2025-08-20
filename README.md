@@ -17,7 +17,7 @@
 
 
 #### MY CURRENT COURSEWORK
-+*Am currently focused on creating good digital profile that will showcase may projects in future and provide information to any interested party.*
+*Am currently focused on creating good digital profile that will showcase may projects in future and provide information to any interested party.*
 + *Im working on starting my project that will showcase what i do to the public.*
 
 ##### MY OBJECTIVES
